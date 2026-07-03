@@ -4,6 +4,13 @@
 
 '직장(職場)'을 뜻하는 영단어 **job**의 어원에서 착안한 이름으로, 구직자가 좋은 직장을 구할 수 있도록 돕는 사이트라는 의미를 담고 있습니다.
 
+<img width="6000" height="3375" alt="67f74607-fa74-4321-8895-1fddba0e9650-0" src="https://github.com/user-attachments/assets/48913326-75b2-4ead-89f2-becca51f3b31" />
+<img width="6000" height="3375" alt="67f74607-fa74-4321-8895-1fddba0e9650-1" src="https://github.com/user-attachments/assets/01d354ca-f0df-494c-a8a7-6c7b9d76405e" />
+<img width="6000" height="3375" alt="67f74607-fa74-4321-8895-1fddba0e9650-2" src="https://github.com/user-attachments/assets/1ff62a2e-fb0a-47ed-87e2-87b4dea79964" />
+<img width="6000" height="3375" alt="67f74607-fa74-4321-8895-1fddba0e9650-3" src="https://github.com/user-attachments/assets/4b5e2f7d-d79f-4a1b-9079-3f6fca3ed82a" />
+<img width="6000" height="3375" alt="67f74607-fa74-4321-8895-1fddba0e9650-4" src="https://github.com/user-attachments/assets/1cde01d6-c6b9-4931-8e98-2012d377fe17" />
+<img width="6000" height="3375" alt="67f74607-fa74-4321-8895-1fddba0e9650-5" src="https://github.com/user-attachments/assets/061c62ea-9604-4a3b-9341-c9d637db1810" />
+<img width="6000" height="3375" alt="67f74607-fa74-4321-8895-1fddba0e9650-6" src="https://github.com/user-attachments/assets/837500bb-5e3a-4ab5-a320-8e4c34d9f28b" />
 
 ## 📌 제작 동기
 
